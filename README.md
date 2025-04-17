@@ -1,4 +1,3 @@
-### Est-ce que je t'aime? J'sais pas si je t'aime
 ##### call me Sage/Usagi/Fau
 
 I like hololive, mainly the EN branch since I'm not THAT dedicated to the point where I'd learn different languages to understand the other branches (targeted to Aia) 
